@@ -1,1 +1,0 @@
-# Miini-cerebro-Artificial-10k-neur
